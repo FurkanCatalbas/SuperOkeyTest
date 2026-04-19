@@ -3,3 +3,5 @@
 <a href="https://hizliresim.com/56v19w1"><img src="https://i.hizliresim.com/56v19w1.png" alt="ff"></a>
 <a href="https://hizliresim.com/tfb39x6"><img src="https://i.hizliresim.com/tfb39x6.png" alt="ff"></a>
 <a href="https://hizliresim.com/5tg2jw7"><img src="https://i.hizliresim.com/5tg2jw7.png" alt="ff"></a>
+<a href="https://hizliresim.com/ivsx18g"><img src="https://i.hizliresim.com/ivsx18g.png" alt="ff"></a>
+<a href="https://hizliresim.com/co88afz"><img src="https://i.hizliresim.com/co88afz.png" alt="ff"></a>
